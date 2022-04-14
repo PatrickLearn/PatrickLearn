@@ -1,13 +1,16 @@
-Patrick Learn
-Founder of CygoTech
-CTO of Pictured LLC
+Patrick Learn 
 
-I enjoy going on nightwalks.
+Founder of CygoTech 
 
+CTO of Pictured LLC 
 
-Discord: Demiurge#8768
-Twitter: @Demi_Twi
-LinkedIn: https://www.linkedin.com/in/patricklearn/
+I enjoy going on nightwalks. 
 
 
-patricklearn@gmail.com
+Discord: Demiurge#8768 
+
+Twitter: @Demi_Twi 
+
+LinkedIn: https://www.linkedin.com/in/patricklearn/ 
+
+patricklearn@gmail.com 
